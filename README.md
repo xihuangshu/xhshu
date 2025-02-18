@@ -1,4 +1,4 @@
-👋 免翻墙入口： https://xhs.bet/
+.👋 免翻墙入口： https://xhs.bet/
 ⚡ 免翻墙入口1： https://xhs.bet/
 👀 油管YouTube： 
 💞️ 官方推特： https://x.com/chiguawang67
