@@ -11,4 +11,4 @@
 
 ⚡ QQ群： http://g.ykfeu50.cn/s/1Fj1
 
-📫 新地址获取: 方法一： 发送“吃瓜网”至 xhsdizhi@gmail.com 获取最新吃瓜地址
+📫 新地址获取: 方法一： 发送“小黄书”至 xhsdizhi@gmail.com 获取最新吃瓜地址
