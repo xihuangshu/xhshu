@@ -9,4 +9,4 @@
 
 ⚡ QQ群： http://g.ykfeu50.cn/s/1Fj1
 
-📫 新地址获取: 方法一： 发送任意内容至电子邮箱 xhsdizhi@gmail.com 获取最新吃瓜地址
+📫 新地址获取： 发送任意内容至电子邮箱 xhsdizhi@gmail.com 获取最新吃瓜地址
