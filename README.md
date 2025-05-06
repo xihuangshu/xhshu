@@ -1,4 +1,4 @@
-👋 免翻墙入口： https://xhshu6.com
+👋 免翻墙入口： https://xhshu9.com
 
 ⚡ 永久网址： https://xhsaa.com
 
