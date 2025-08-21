@@ -1,4 +1,4 @@
-👋 免翻墙入口： https://xiaohs14.com
+👋 免翻墙入口： https://xiaohs15.com
 
 ⚡ 永久网址： https://xhsaa.com
 
