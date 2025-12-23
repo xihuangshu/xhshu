@@ -1,4 +1,5 @@
-👋 免翻墙入口： https://xhsa2.com
+👋 免翻墙入口： https://xhsa3.com
+    备用入口：https://xhsa2.com
 
 ⚡ 永久网址： https://xhsaa.com
 
