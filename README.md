@@ -1,8 +1,12 @@
-👋 免翻墙入口： https://xhsa3.com
-    备用入口：https://xhsa2.com
+👋 免翻墙入口： https://xhsa4.com
+    
+    备用入口：https://xhsa3.com
 
 ⚡ 永久网址： https://xhsaa.com
 
+🤝官方客服🤝： https://t.me/xhshugf
+
+👍吃瓜TG资源频道一👍   https://t.me/xhshupd
 
 😄 官方电报（telegram）群：https://t.me/xhshupd
 
