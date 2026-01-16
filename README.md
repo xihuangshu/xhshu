@@ -10,6 +10,6 @@
 
 😄 官方电报（telegram）群：https://t.me/xhshupd
 
-⚡ 官方吃瓜扣群： https://huoma.peach-av.com/t/ui5byg
+⚡ 官方吃瓜扣群： https://huoma.peach-av.com/t/ui5byg](http://huoma.peach-av.com/t/ui5byg
 
 📫 新地址获取： 发送任意内容至电子邮箱 xhsdizhi@gmail.com 获取最新吃瓜地址
